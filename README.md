@@ -1,3 +1,3 @@
-![1000041052](https://github.com/user-attachments/assets/6b1db49b-f0fb-4a15-949a-70c925e527d8)
-![1000041848](https://github.com/user-attachments/assets/a411c1b3-dc96-4cf0-8561-f0296817597f)
+![1000041052](https://github.com/user-attachments/assets/6ca21da4-f1e5-4230-aa02-69b4337d8303)
+![1000041848](https://github.com/user-attachments/assets/9c9ab718-8806-4a99-bf0c-c91232b87499)
 
